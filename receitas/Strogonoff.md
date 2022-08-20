@@ -1,4 +1,4 @@
-# Strogonoff de frango :chiken
+# Strogonoff de frango 🍗
 
 ## **Ingredientes**
  - 1K de peito de frango
